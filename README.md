@@ -1,1 +1,3 @@
-# Choco-truffle-cake
+# Chocolate-truffle-cake recipe :-
+this recipe is to make a cake with lots of fillings of chocolate and smooth ganache. this is extremely mouth-watering recipe. and it's my most favorite. I suggest to give it a try at least...
+THANK YOU !!!
